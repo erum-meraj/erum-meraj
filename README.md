@@ -1,5 +1,5 @@
 # 💫 About Me:
-Student at Indian Institute of Technology 🏫, Patna<br>Trying to explore and hone my skills in all sectors of technology👩‍💻  <br>Looking for curious collaborators ☕ <br>
+Student at Indian Institute of Technology, Patna 🏫<br>Trying to explore and hone my skills in all sectors of technology👩‍💻  <br>Looking for curious collaborators ☕ <br>
 
 
 ## 🌐 Socials:
